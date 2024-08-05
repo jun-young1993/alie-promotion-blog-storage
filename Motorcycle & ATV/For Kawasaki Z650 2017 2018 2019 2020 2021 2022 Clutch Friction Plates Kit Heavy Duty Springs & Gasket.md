@@ -30,8 +30,12 @@ For a limited time, get the Heavy Duty Clutch Friction Plates Kit for your Kawas
 
 **P.S.** Check out the images below for a closer look at this awesome clutch kit!
 
-[Image 1](https://ae-pic-a1.aliexpress-media.com/kf/Sb22aba7fbcd545d4a34250b274b14e18K.jpg)
-[Image 2](https://ae-pic-a1.aliexpress-media.com/kf/Sd98d74223e3c4958898d6045de8bc71cH.jpg)
-[Image 3](https://ae-pic-a1.aliexpress-media.com/kf/Scda838ee38414708928872f7abc05f413.jpg)
-[Image 4](https://ae-pic-a1.aliexpress-media.com/kf/Sbbb3b3c73be14987abc80b0da31a415bj.jpg)
-[Image 5](https://ae-pic-a1.aliexpress-media.com/kf/Sbd3365ec30334c8bbfb782d9bc4a10b1q.jpg) 
+![Image 1](https://ae-pic-a1.aliexpress-media.com/kf/Sb22aba7fbcd545d4a34250b274b14e18K.jpg)
+
+![Image 2](https://ae-pic-a1.aliexpress-media.com/kf/Sd98d74223e3c4958898d6045de8bc71cH.jpg)
+
+![Image 3](https://ae-pic-a1.aliexpress-media.com/kf/Scda838ee38414708928872f7abc05f413.jpg)
+
+![Image 4](https://ae-pic-a1.aliexpress-media.com/kf/Sbbb3b3c73be14987abc80b0da31a415bj.jpg)
+
+![Image 5](https://ae-pic-a1.aliexpress-media.com/kf/Sbd3365ec30334c8bbfb782d9bc4a10b1q.jpg) 
