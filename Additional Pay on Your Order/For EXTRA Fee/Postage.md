@@ -1,0 +1,30 @@
+[![https://ae-pic-a1.aliexpress-media.com/kf/HTB1ScIKc4GYBuNjy0Fnq6x5lpXae.jpg](https://ae-pic-a1.aliexpress-media.com/kf/HTB1ScIKc4GYBuNjy0Fnq6x5lpXae.jpg)](https://s.click.aliexpress.com/s/fwx308cRD9Eny963e3KDdYxyIpNj8TXVr7saiF9Um5rMUg1kZtJALLnfa2LNXtiVgnxdD8Og6MmvwBoxhnSYQGM6r0c08U4TfX8DFGo7vviCuu3q62Q60OAhRZcqm3G8PtwM69xY7TOEWRrvulP5ukZQ4uQbBBtaVsdr6EffAqVmp3O5GyUANU2DoA3dJufNhDfh7KOlLgKIvRVhDxRESHLmea6fTE26gLUqKEUuuizJiLENrCbax94DZHDu8WhaXM9vQ86gzlqceNPO5w3vwXm4VrBF3x2KvCl0tCIKPGfYgch2lDwq1rMEJhP7ciQYRsMMtWBn3CagtIy7rqroL5H0xg5UzuNO4QF0oIdcr5jE8Enr6uFvS8wI2YjHGFl7upS2pXGuG7W1WKJJVarY1OIcvpo8dQyqKIXn9B8wJjbxUdbll1IuY6kWnSr1p2kZJ83oK84rnEdtID4usl2Y6CAeDvJK8AB820QlIdhVhfd9YkhCMDYa8aEpiRBf7ANUCmNd73sbuyrVkufneXghmN8Y1wWaOou01Md3eSGkAkkzBJG53P85xOvxy6vV7c96VuvOrQiPsPaTOb6tX2byS8RGA13e02Ms1wy7GuM2Z4PXoIKikUxwpfswfWJjx3b1LPVbQpVe0DS5rrhCwba5bhdzPN6SUIsk0dTynI6pBwXkIMoyrTaujGnNWJTr9iam3ilFIDaoDrzTGNm1vAS0dNvHBxkyAI7oAaBcBzXebmeI0UUZpiDQWEW7hXsI55vx8y1aZwDPTVbtWN4hlSUDTEVBC3158sEy0JSaHi8M4U3A4CHIIMo1hFmrmfNhJShgbo5TJSFWkZ6UhIRIuRJsJ4ib7KCaebDWy2WFl9V8xFmYie9utPrJMb7LmAW5n77GZFH66WBNgOeq2JoWI8RlliefIbEb5SMIGdkFhFABZ0HqzIUUGRDD9CIKP1lg4OKUB5qh398HBGkbFcYa8b)
+# [**Click Here To Buy!**](https://s.click.aliexpress.com/s/fwx308cRD9Eny963e3KDdYxyIpNj8TXVr7saiF9Um5rMUg1kZtJALLnfa2LNXtiVgnxdD8Og6MmvwBoxhnSYQGM6r0c08U4TfX8DFGo7vviCuu3q62Q60OAhRZcqm3G8PtwM69xY7TOEWRrvulP5ukZQ4uQbBBtaVsdr6EffAqVmp3O5GyUANU2DoA3dJufNhDfh7KOlLgKIvRVhDxRESHLmea6fTE26gLUqKEUuuizJiLENrCbax94DZHDu8WhaXM9vQ86gzlqceNPO5w3vwXm4VrBF3x2KvCl0tCIKPGfYgch2lDwq1rMEJhP7ciQYRsMMtWBn3CagtIy7rqroL5H0xg5UzuNO4QF0oIdcr5jE8Enr6uFvS8wI2YjHGFl7upS2pXGuG7W1WKJJVarY1OIcvpo8dQyqKIXn9B8wJjbxUdbll1IuY6kWnSr1p2kZJ83oK84rnEdtID4usl2Y6CAeDvJK8AB820QlIdhVhfd9YkhCMDYa8aEpiRBf7ANUCmNd73sbuyrVkufneXghmN8Y1wWaOou01Md3eSGkAkkzBJG53P85xOvxy6vV7c96VuvOrQiPsPaTOb6tX2byS8RGA13e02Ms1wy7GuM2Z4PXoIKikUxwpfswfWJjx3b1LPVbQpVe0DS5rrhCwba5bhdzPN6SUIsk0dTynI6pBwXkIMoyrTaujGnNWJTr9iam3ilFIDaoDrzTGNm1vAS0dNvHBxkyAI7oAaBcBzXebmeI0UUZpiDQWEW7hXsI55vx8y1aZwDPTVbtWN4hlSUDTEVBC3158sEy0JSaHi8M4U3A4CHIIMo1hFmrmfNhJShgbo5TJSFWkZ6UhIRIuRJsJ4ib7KCaebDWy2WFl9V8xFmYie9utPrJMb7LmAW5n77GZFH66WBNgOeq2JoWI8RlliefIbEb5SMIGdkFhFABZ0HqzIUUGRDD9CIKP1lg4OKUB5qh398HBGkbFcYa8b)
+## Need a Little Extra to Complete Your AliExpress Order? We've Got You Covered! 
+
+Ever find the *perfect* item on AliExpress, only to realize you need a tiny bit extra to complete your order?  Maybe it's a unique shipping request, a few extra beads for your crafting project, or you just need to hit that free shipping minimum.  We've all been there! 
+
+**That's where this handy listing comes in!**  
+
+[Image of the "For EXTRA Fee/Postage" product]
+
+For just **$0.95** (that's a steal!), you can add this to your cart and cover those little extra costs. 
+
+**Here's why you'll love this:**
+
+* **Super convenient:**  No more scrapping your cart or searching for last-minute additions!
+* **Total flexibility:** Use this for additional shipping fees, slight price differences, or to top up your order for free shipping. 
+* **Peace of mind:**  Get exactly what you need without any order hiccups.
+
+**Here are a few ways other savvy shoppers are using this:**
+
+* "Just what I needed to combine shipping on a couple of small orders - thanks!"
+* "Used this to cover the cost of faster shipping. Arrived in half the time!" 
+
+**Ready to simplify your AliExpress experience?**
+
+Click here to add this to your cart and checkout with confidence: [Product URL]
+
+Don't miss out on this simple solution to a common shopping dilemma! 
+
+[![https://ae-pic-a1.aliexpress-media.com/kf/HTB1ScIKc4GYBuNjy0Fnq6x5lpXae.jpg](https://ae-pic-a1.aliexpress-media.com/kf/HTB1ScIKc4GYBuNjy0Fnq6x5lpXae.jpg)](https://s.click.aliexpress.com/s/fwx308cRD9Eny963e3KDdYxyIpNj8TXVr7saiF9Um5rMUg1kZtJALLnfa2LNXtiVgnxdD8Og6MmvwBoxhnSYQGM6r0c08U4TfX8DFGo7vviCuu3q62Q60OAhRZcqm3G8PtwM69xY7TOEWRrvulP5ukZQ4uQbBBtaVsdr6EffAqVmp3O5GyUANU2DoA3dJufNhDfh7KOlLgKIvRVhDxRESHLmea6fTE26gLUqKEUuuizJiLENrCbax94DZHDu8WhaXM9vQ86gzlqceNPO5w3vwXm4VrBF3x2KvCl0tCIKPGfYgch2lDwq1rMEJhP7ciQYRsMMtWBn3CagtIy7rqroL5H0xg5UzuNO4QF0oIdcr5jE8Enr6uFvS8wI2YjHGFl7upS2pXGuG7W1WKJJVarY1OIcvpo8dQyqKIXn9B8wJjbxUdbll1IuY6kWnSr1p2kZJ83oK84rnEdtID4usl2Y6CAeDvJK8AB820QlIdhVhfd9YkhCMDYa8aEpiRBf7ANUCmNd73sbuyrVkufneXghmN8Y1wWaOou01Md3eSGkAkkzBJG53P85xOvxy6vV7c96VuvOrQiPsPaTOb6tX2byS8RGA13e02Ms1wy7GuM2Z4PXoIKikUxwpfswfWJjx3b1LPVbQpVe0DS5rrhCwba5bhdzPN6SUIsk0dTynI6pBwXkIMoyrTaujGnNWJTr9iam3ilFIDaoDrzTGNm1vAS0dNvHBxkyAI7oAaBcBzXebmeI0UUZpiDQWEW7hXsI55vx8y1aZwDPTVbtWN4hlSUDTEVBC3158sEy0JSaHi8M4U3A4CHIIMo1hFmrmfNhJShgbo5TJSFWkZ6UhIRIuRJsJ4ib7KCaebDWy2WFl9V8xFmYie9utPrJMb7LmAW5n77GZFH66WBNgOeq2JoWI8RlliefIbEb5SMIGdkFhFABZ0HqzIUUGRDD9CIKP1lg4OKUB5qh398HBGkbFcYa8b)
